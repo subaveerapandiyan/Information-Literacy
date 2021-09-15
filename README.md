@@ -1,0 +1,8 @@
+# Journal-Publications Subaveerapandiyan, A., & Priyanka, S. (2021). Digital Literacy and Reading Habits of the Central University of Tamil Nadu Students: A Survey Study. Library Philosophy and Practice (e-Journal), 1–19.https://digitalcommons.unl.edu/libphilprac/6087/
+Subaveerapandiyan, A., & Anuradha, M.. (2021). Digital Media and Information Literacy: A way to Paperless Society. Library Philosophy and Practice (e-Journal), 1–23. https://digitalcommons.unl.edu/libphilprac/6079/
+Subaveerapandiyan, A., & Sindhu, D. (2021). Knowledge Management Skills for 21st Century Library Professionals in India: A Study. Library Philosophy and Practice (e-Journal), 1–14. https://digitalcommons.unl.edu/libphilprac/5992/
+Subaveerapandiyan A., & Nandhakumar, R. (2021). A Study of Teacher Educators’ Skill and ICT Integration in Online Teaching during the Pandemic Situation in India. Library Philosophy and Practice (e-Journal). https://digitalcommons.unl.edu/libphilprac/5938
+Subaveerapandiyan, A., Yohapriya, K., & Ghouse Modin, M. (2021). Digital Publishing Habits, Perceptions of Open Access Publishing and Other Access Publishing: Across Continents Survey Study. Library Philosophy and Practice (e-Journal), 1–21. https://digitalcommons.unl.edu/libphilprac/5896
+Subaveerapandiyan, A., & Fakrudhin Ali Ahamed, H. (2020). Awareness And Usage Of Swayam Courses Among Library And Information Science Students: A Survey. Library Philosophy and Practice (e-Journal). https://digitalcommons.unl.edu/libphilprac/3705
+Subaveerapandiyan A. (2019). Marketing Of Library Products And Services: An Overview. International Journal Of Information Retrieval And Management, 7(13(A)), 11–14.
+
